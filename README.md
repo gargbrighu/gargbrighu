@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/4c6dda1f-8984-4698-8b17-1edddd309a8d)
+![Uploading image.png…]()
+
 
 - 👋 Hi, I’m Brighu Garg
 
